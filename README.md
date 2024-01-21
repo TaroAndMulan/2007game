@@ -16,6 +16,16 @@ https://www.yygarchive.org/game/128496
 
 https://www.yygarchive.org/game/189650
 
-## avoidering
+## Avoidering
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic7.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic8.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic9.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic10.png)
 
 ## Sharingan Adventure
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic1.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic2.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic3.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic4.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic5.png)
+![Alt text](https://github.com/TaroAndMulan/2007game/blob/main/pic6.png)
